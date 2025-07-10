@@ -8,7 +8,9 @@
 
 ПРОСМОТР
 
-https://i.imgur.com/lNbUOPw.png
+https://i.imgur.com/TDBQfEb.png
+https://i.imgur.com/KcVZK8t.png
+https://i.imgur.com/2Rnt0h8.png
 
 
 ## 🛠️ Технології
